@@ -23,4 +23,4 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 ## 6. Contact Us
 If you have any questions about this Privacy Policy or the extension, please contact us at:
 
-[Your Contact Email or Website]
+mortenprads@gmail.com
